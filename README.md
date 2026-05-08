@@ -1,0 +1,1 @@
+# mcic-informatic-figures
